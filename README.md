@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @UltraX77
+- 👀 I’m interested in Design and Gaming.
+- 🌱 I’m currently learning Python.
+- 📫 I am on Discord: Ultra#7000.
+- 🎮 I also like Minecraft.
